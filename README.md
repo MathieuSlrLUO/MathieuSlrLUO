@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🌊 I’m currently working on physical oceanography
+- 🐬 I'm part of the lineup ocean team
